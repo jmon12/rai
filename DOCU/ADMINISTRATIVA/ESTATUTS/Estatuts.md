@@ -6,38 +6,24 @@ Los siguientes estatutos regulan la línea ideológica, de funcionamiento y de t
 
 
 ### Artículo 1.- Denominación y ámbito
-La asociación RECURSOS DE ANIMACIÓN INTERCULTURAL (RAI) es una asociación sin afán de lucro y de cooperación internacional que tiene como ámbito de actuación principalmente Cataluña y, en segundo lugar, el extranjero y que se rige por la normativa vigente y especialmente por los presentes Estatutos.
-
-### Artículo 2.- Domicilio social
-El domicilio social está en la calle Carders, 12, Pral., de Barcelona, pudiéndose crear delegaciones en todo el territorio catalán.
+La asociación RECURSOS DE ANIMACIÓN INTERCULTURAL (RAI) regula sus actividades de acuerdo con lo establecido por la Ley 4/2008, de 24 de abril, del libro tercero del Código Civil de Catalunya, relativo a las personas jurídicas, la Ley Orgánica 1/2002, de 22 de marzo, reguladora del derecho de asociación, y sus estatutos.
   
+## Artículo 2.- Domicilio social
+El domicilio social está en la calle Carders, 12, Pral., de Barcelona, pudiéndose crear delegaciones en todo el territorio catalán.
 
 ## CAPÍTULO II - OBJETIVOS
 
 ### Artículo 3.- Definición general
 
-RAI se define como una entidad de cariz educativo y con el objetivo de incidencia política entre los y las jóvenes de Cataluña, de luchar por un mundo justo donde todas las personas sin distinción de etnia y cultura puedan vivir en igualdad de condiciones.  
+RAI se define como una entidad de cariz educativo y con el objetivo de incidencia política entre los y las jóvenes de Cataluña, de luchar por un mundo justo donde todas las personas sin distinción de etnia y cultura puedan vivir en igualdad de condiciones y oportunidades. También se plantea RAI como una herramienta para hacer oir la voz de los y las jóvenes en la vida política, social y cultural, especialmente en aquellas cuestiones que les afecten de una manera directa, ayudando así a su pleno desarrollo y plena incorporación en la vida ciudadana.  
   
-RAI se declara como una entidad democrática. Entendemos la democracia como el poder ejercido en cuanto a la toma de decisiones sociales, políticas y económicas que afectan a la comunidad por parte de todos sus propios integrantes. Como un sistema objetivo y perfeccionable de toma de decisiones colectivas sin recurrir a la violencia o a la opresión de las minorías. Pero también democracia directa y participativa, democracia del día a día, lejos de la formula formal y representativa ejercida por personas con derechos y responsabilidades.  
-  
-Queremos empezar definiendo este concepto de democracia que es el eje transversal que engloba el proyecto educativo de la entidad, y que es presente en todos los subambitos que definiremos a continuación. Creemos que es importante profundizar algo más en este punto porque esta profundización definirá nuestra manera de entender la democracia y quizás una cosa más importante; definirá la interpretación de este modo de entender la democracia en nuestras relaciones con las instituciones, y también nuestro papel en las diferentes plataformas juveniles, y redes asociativas.  
-  
-Todo el proyecto educativo de RAI parte y desemboca en el fomento de la democracia directa y participativa, en el trabajo para fomentar–la en todas sus relaciones, diferentes plataformas y redes en que participa. 
+RAI funciona como una plataforma de proyectos para la transformación social, cultural y educativa, ofreciendo un amplio abanico de recursos e iniciativas a través de la participación activa, la cooperación, la autonomía y el empoderamiento individual i colectivo, tanto a nivel local como internacional.
 
-RAI se declara a favor de las políticas de democracia directa y participativa. Democracia activa donde todas las personas tienen que tener un papel activo y directo en la prisa de decisiones de los diferentes temas que nos afectan. Esto nos obligará a reflexionar sobre nuestra forma de participación en plataformas como los Consejos Locales (ex: CJB, CNJC,...), administraciones y redes que tienen muchas deficiencias en este sentido, al seguir una vía democrática de las llamadas formales y representativas.  
-  
-Por todo esto, RAI se propone potenciar y mantener las vías y los mecanismos fluidos de participación internos mediante un fortalecimiento de los canales de comunicación, y el fomento de su uso. Aprovechar las nuevas tecnologías para abrir foros de debate e incluido pasar a hacer, aparte de una asamblea al año, una reunión de seguimiento de carácter asambleario. A partir de esta definición general:
 
 
 ### Artículo 4.- Objetivos generales
 
-Los objetivos de RAI de forma genérica son.
-
-- Promover el compromiso social y ecológico hacia un planeta globalmente justo y sostenible.
-- Promover la participación de los jóvenes como enser de transformación social y democrática
-- Promover los valores del lucha contra el racismo, la interculturalidad, el respeto y la promoción de culturas minoritarias (entre ellas la catalana), ante la globalización cultural.
-- Promover los valores de la solidaridad y la cultura de la paz utilizando el diálogo y la mediación.
-- Promover la participación ciudadana y la solidaridad a través de la cooperación tanto a nivel local como internacional.
+Entre sus finalidades se destaca la promoción de valores como el antiracismo, la interculturalidad, el respeto y la emancipación de culturas minotirarias frente a la globalización cultural. Así como la promoción de valores como la solidaridad, la cultura de la paz, mediante el uso del diálogo y la mediación como estrategia de resolución de conflictos.
 
 ### Artículo 5.- Ámbitos de actuación
 
@@ -124,21 +110,11 @@ Es por eso que RAI se posiciona a favor de la lucha por la igualdad de derechos 
 RAI desarrolla iniciativas de cooperación y solidaridad internacionales con diferentes comunidades y pueblos de todas partes (Europa, Mediterraneia, África y América Latina). En esta linea, optamos por una a cooperación por el desarrollo sostenible de los pueblos en la medida que estos lo crean necesario. RAI huye de la idea assistencialista de las acciones de solidaridad y de cooperación y en sus intervenciones persigue la satisfacción de las necesidades e intereses trazados desde la comunidad con la cual se trabaja, sin imponer metodologías ni contenidos.
 
 ### Artículo 6.- Actividades
-La metodología empleada se el trabajo intercultural, entendido la interculturalidad como la valoración por igual de todas las culturas en un mismo contexto y de la interrelación entre culturas como enser enriquecedor para los pueblos -como col•lectivos- y para el hombres y las mujeres -como personas-.
+Para conseguir sus objetivos, la asociación realiza las siguientes actividades:
 
-RAI se plantea, además, hacer sentir la voz de los jóvenes en la vida política, social y cultural, especialmente en las cuestiones que los afectan de una manera directa, ayudando así a su pleno desarrollo y plena incorporación a la vida ciudadana, desde la enfoque de la interculturalidad y la pluralidad.
+1. Actividades de dinamización cultural y artística tanto a nivel de espectáculos de teatro, música, danza, circo y audiovisuales, como a nivel de exposiciones, instalaciones o distintos actos performativos.
+1. Actividades formativas relacionadas con las disciplinas artísticas.
 
-Para aplicar esta metodología, RAI se propone entre otras actividades:
-
-1. La realización de intercambios, seminarios, viajes de estudio, estancias y otras actividades interculturales, tanto en Cataluña como cualquiera otro lugar del mundo. 
-1. La realización de seminarios y actas para #promover el trabajo intercultural entre los profesionales y voluntarios del mundo sòcio-cultural.
-1. La creación de un fondo documental sobre actividades, organismos y posibilidades internacionales para jóvenes.
-1. La participación en procesos y organismos internacionales que puedan representar ofertas interesantes para los jóvenes catalanes. En el mismo sentido, el mantenimiento de relaciones con entidades socias europeas o del resto del mundo.
-1. Colaborar y cooperar en estudios o actividades de interés común con entidades internacionales de las mismas características que RAI.
-1. Fomentar en los jóvenes el associacionismo juvenil para emprender en grupo la solución de las cuestiones que los afectan a través de actividades de intercambio, autoorganización y otras.
-1. El establecimiento de una red de entidades, grupos, servicios públicos y privados interesados al participar en actividades internacionales.
-1. la promoción o participación de campañas que trabajen con los mismos objetivos que RAI
-1. Todas aquellas tipologíes de actividades que no estén entre estos apartados y que RAI considere oportuna su realitzacíón
 
 ## CAPÍTULO III - ADMINISTRACIÓN
 
@@ -147,37 +123,40 @@ Los órganos directivos de la asociación son:
 
 1. La Asamblea General.
 
-1. La Comisión Ejecutiva.
+1. La Junta Directiva.
 
 ### Artículo 8.- Naturaleza y composición de la Asamblea General
-La Asamblea General está constituida por todos los socios y socias miembros, pudiéndose reunir en sesión Ordinaria o Extraordinaria. Es el órgano supremo de gobierno de la Asociación.
+La Asamblea General es el órgano soberano de la asociación; sus miembros forman parte por derecho propio e irrenunciable.
 
 ### Artículo 9.- Reuniones de la Asamblea General
-La Asamblea General se reúne, ordinariamente, una vez al año, y de forma extraordinaria siempre que la convoque la Comisión Ejecutiva Secretariado o bien lo pida la tercera parte de los socios.
+La Asamblea General se reúne, ordinariamente, una vez al año, y de forma extraordinaria siempre que la convoque la Junta Directiva, Secretariado o bien lo pida la tercera parte de los socios.
 
 ### Artículo 10.- Convocatorias de la Asamblea General
 La Asamblea General Encomendera será convocada por escrito con 20 días naturales de antelación a todos los socios/se. Para asambleas extraordinarias hará falta un mínimo de 15 días naturales, con la excepción de casos de urgencia justificada, en los cuales serán suficiente 5 días habilidosos.
 
 ### Artículo 11.- Constitución de la Asamblea General
-Para la constitución de la Asamblea General habrá dos convocatorias. El quórum para la primera será de la mitad más uno de los socios/se. La segunda convocatoria será media hora más tarde, sea qué sea el número de asistentes. 
+1. La Asamblea General se constituye válidamente sea cual sea el número de socios presentes o representados.
+1. El 10% de los socios pueden solicitar al órgano de gobierno la inclusión en el orden del día de uno o más asuntos a tratar. En el caso de que se haya convocado la Asamblea, pueden hacerlo dentro del primer tercio del periodo comprendido entre la recepción de la convocatoria y la fecha en que este órgano tiene que reunirse. La Asamblea únicamente puede adoptar acuerdos respecto a los puntos incluidos en el orden del día, salvo que se haya consituido con carácter universal o que los acuerdos se refieran a la convocatoria de una nueva asamblea general.
 
 ### Artículo 12.- Moderación y presidencia de la Asamblea General
-La Asamblea General será presidida por el Presidente junto con el Secretario, o bien quién los sustituya. Como moderador actuará aquella persona que la Comisión Ejecutiva haya designado previamente.
+La Asamblea General será presidida por el Presidente junto con el Secretario, o bien quién los sustituya. Como moderador actuará aquella persona que la Junta Directiva haya designado previamente.
 
 ### Artículo 13.- Adopción de acuerdos de la Asamblea General
-Los acuerdos se tomarán por mayoría simple del asistentes, excepto en los casos previstos en estos ESTATUTUOS.
+1. En las reuniones de la asamblea general corresponde un voto a cada miembro de la asociación.
+1. Los acuerdos se tomarán por mayoría simple votos de los socios presentes o representados, en caso que no se llegue a consenso.
+1. Para adoptar acuerdos sobre la modificación de los estatutos, la disolución de la asociación, la constitución o alienación de bienes, se requiere una mayoría qualificada de los socios de pleno derecho presentes o representados (los votos afirmativos superan la mitad de los emitidos). En cualquier caso la elección de la Junta Directiva, si se presentan distintas candidaturas, se hará por acuerdo de la mayoría simple o relativa a los socios presentes o representados (más votos a favor que en contra).
+1. Las candidaturas que se presentan formalmente tienen derecho a una copia de la lista de socios y de sus domicilios y direcciones de correo siempre que se haya obtenido la autorización expresa. 
+
 
 ### Artículo 14.- Facultades de la Asamblea General Encomendera
-Las funciones de la Asamblea General Encomendera son las siguientes:
+La asamblea general tiene las siguientes facultades:
 
-1. Aprobar el acta de la Asamblea anterior.
-1. Aprobación de la memoria añal de actividades.
-1. Recibir los informes de la Comisión Ejecutiva.
-1. Rendir acuerdos sobre los presupuestos, fijar las cuotas de sus socios y socias y aprobar el estado de cuentas del ejercicio anterior.
-1. Aprobar el programa anual.
-1. Decidir sobre las solicitudes de admisión y las mociones de exclusión de socios y socias.
-1. Elegir o cesar los miembros de la Comisión Ejecutiva.
-1. Fijar las líneas generales de actuación.
+1. Aprobar, si procede, la gestión del órgano de gobierno, el presupuesto y las cuentas anuales.
+1. Elegir y separar los miembros del órgano de gobierno y controlar su actividad.
+1. Modificar los estatutos.
+1. Acordar la forma y el importe de las contribuciones a la financiación de la asociación o al pago de sus gastos, incluyendo las aportaciones al patrimonio de la asociación
+1. Acordar la transformación, fusión, escisión o la dissolución de la asociación.
+1. Acordar el ingreso y la baja en federaciones y confederaciones.
 
 ### Artículo 15.- Facultades de la Asamblea General Extraordinaria
 Las funciones de la Asamblea General Extraordinaria son las siguientes:
@@ -188,17 +167,19 @@ Las funciones de la Asamblea General Extraordinaria son las siguientes:
 1. Acordar la disolución de la asociación.
 1. Cualquier asunto que por su urgencia no pueda esperar la próxima Asamblea Ordinaria.
 
-### Artículo 16.- Naturaleza y componsición de la Comisión Ejecutiva
-La Comisión Ejecutiva, órgano ordinario y de ejecución de la Asociación, está compuseto por un mínimo de nuevo socios/se de pleno derecho.  
+### Artículo 16.- Naturaleza y componsición de la Junta Directiva
+La Junta Directiva rige, administra y representa a la Asociación. Componen este órgano el/la presidente/a, el/la secretario/a y el/la tresorero/a, cargos que han de ser ejercidos por personas distintas.
+La elección de los miembros de la Junta Directiva que han de ser socios y mayores de edad, se hace por votación de la Asamblea General. Las personas elegidas entran en funciones después de haber aceptado el cargo
+
 Las persones tesorera, presidenta y secretaria de la asociación serán las mismas que en la Asamblea General Extraordinaria.  
-La Comisión Ejecutiva está formada por nueve personas con una igual responsabilidad respeto la entidad y que actuarán como referentes, tanto internamente como externa, de las siguientes áreas: Área de Coordinación Interna, Área Técnica, Área Económica, Área Pedagógica, Área de Comunicación, Área de Relaciones Institucionales, Área de relaciones de Barrio y Ciutat, Área de Relaciones Nacionales y Estatales, Área de Relaciones Internacionales.  
+La Junta Directiva está formada por nueve personas con una igual responsabilidad respeto la entidad y que actuarán como referentes, tanto internamente como externa, de las siguientes áreas: Área de Coordinación Interna, Área Técnica, Área Económica, Área Pedagógica, Área de Comunicación, Área de Relaciones Institucionales, Área de relaciones de Barrio y Ciutat, Área de Relaciones Nacionales y Estatales, Área de Relaciones Internacionales.  
 El mandato durará dos años y sus miembros podrán ser reelegidos como máximo una vez.  
-Las decisiones tomadas por la Comisión Ejecutiva serán aprobadas preferentemente por consenso entre todos sus miembros.
+Las decisiones tomadas por la Junta Directiva serán aprobadas preferentemente por consenso entre todos sus miembros.
   
-Ninguno de los cargos anteriormente citados (tesorera, presidenta, secretaria y otras de la Comisión Ejecutiva) recibirá retribución alguna por la realización de sus tareas.
+Ninguno de los cargos anteriormente citados (tesorera, presidenta, secretaria y otras de la Junta Directiva) recibirá retribución alguna por la realización de sus tareas.
   
-### Artículo 17.- Facultades de la Comisión Ejecutiva
-Las funciones de la Comisión Ejecutiva son las siguientes:
+### Artículo 17.- Facultades de la Junta Directiva
+Las funciones de la Junta Directiva son las siguientes:
 
 1. La dirección de la Asociación.
 1. Ejecutar los acuerdos de la Asamblea General.
@@ -207,19 +188,31 @@ Las funciones de la Comisión Ejecutiva son las siguientes:
 1. Representar la Asociación.
 1. Admisión y expulsión de socios con la apertura de expediente con audiencia previa del presunto infractor o infractora y derecho a recorrer por parte de este 
 1. Impulsar los actos necesarios para conseguir los objetivos de la Asociación.
+1. Proponer a la Asamblea General la defensa del establecimiento de las cuotas que los miembros de la asociación deben satisfacer.
+1. Convocar las asambleas generales y controlar que se cumplan los acuerdos que se adopten
+1. Presentar el balance y el estado de cuentas de cada ejercicio a la Asamblea General para que los apruebe y confeccionar los presupuestos del ejercicio siguiente 
+1. Contratar los empleados que la asociación pueda tener
+1. Inspeccionar la contabilidad y preocuparse porque los socios funcionen con normalidad
+1. Estableder grupos de trabajo para conseguir de la manera más eficiente y eficaz los fines de la asociación, y autorizar los actos que estos grupos proyecten llevar a cabo.
+1. Nombrar los vocales de la Junta Directiva que tengan que encargarse de cada grupo de trabajo, a propuesta de los propios grupos
+1. Llevar a cabo las gestiones necesarias frente a organismos públicos, entidades y otras personas para conseguir:
+   - Subvenciones u otras ayudas
+   - El uso de locales o edificios que puedan llegar a ser un lugar de convivencia y comunicación y también un centro de recuperación ciudadana
+1. Abrir cuentas corrientes y libretas de ahorros en cualquier establecimiento de crédito o de ahorro y disponer de los fondos que haya en dicho depósito. La disposición de los fondos se determina en el artículo ??
+1. Resolver provisionalmente qualquier caso 
 
-### Artículo 18.- Reuniones de la Comisión Ejecutiva
-La Comisión Ejecutiva se reúne, como mínimo, una vez en el mes. En cualquier caso la convocatoria se hará a través del Referente de Coordinación Interna, a iniciativa propia, o bien cuando lo pida la tercera parte de sus miembros.
+### Artículo 18.- Reuniones de la Junta Directiva
+La Junta Directiva se reúne, como mínimo, una vez en el mes. En cualquier caso la convocatoria se hará a través del Referente de Coordinación Interna, a iniciativa propia, o bien cuando lo pida la tercera parte de sus miembros.
 
-### Artículo 19.- Adopción de acuerdos de la Comisión Ejecutiva
-Las reuniones de la Comisión Ejecutiva quedan constituidas con la mitad más uno de sus miembros. Los acuerdos se toman por mayoría absoluta.
+### Artículo 19.- Adopción de acuerdos de la Junta Directiva
+Las reuniones de la Junta Directiva quedan constituidas con la mitad más uno de sus miembros. Los acuerdos se toman por mayoría absoluta.
 
 ### Artículo 20.- Referente de Coordinación Interna
 Son funciones del Referente de Coordinación Interna:
 
 La función principal del Referente de Coordinación Interna será la de velar por la correcta coordinación entre los diferentes ámbitos de la entidad con las líneas políticas propias de RAI. Además de las siguientes tareas: 
 
-1. Coordinación Interna de la Comisión Ejecutiva
+1. Coordinación Interna de la Junta Directiva
    - Dirigir y ser el referente interno de la Ejecutiva.
    - Realizar la orden del día 
    - Convocar las reuniones de la Ejecutiva
@@ -238,7 +231,7 @@ La función principal del Referente de Coordinación Interna será la de velar p
 ### Artículo 21.- Referente del área Técnica
 Son funciones del Referente del área Técnica:
 
-- Levantar el acta de las reuniones de la Asamblea General y la Comisión Ejecutiva y difundirla a los socios.
+- Levantar el acta de las reuniones de la Asamblea General y la Junta Directiva y difundirla a los socios.
 - Custodiar el archivo de la Asociación.
 - Ser el puente de comunicación entre la Ejecutiva y el equipo técnico. 
 - Coordinarse con el equipo técnico y ser su referente directo.
@@ -314,34 +307,40 @@ Las tareas y funciones del referente del área Institucional serán las siguient
 
 
 ### Artículo 29.- Requisitos y clases
-Pueden ser miembros de RAI las personas que lo deseen. Se establecen dos tipos de miembro, el socio de pleno derecho, al cual nos referimos en estos estatutos simplemente como “socio/socia” y el simpatizante.
+1. Pueden ser miembros de RAI las personas que lo deseen. Se establecen dos tipos de miembro, el socio de pleno derecho, al cual nos referimos en estos estatutos simplemente como “socio/socia” y el simpatizante.
+1. Si son menores en edades comprendidas entre los 14 y los 18 y no están emancipados, necesitan el consentimiento de sus padres o tutores para ser socios de pleno derecho con derecho a voto en las asambleas generales y no pueden ser elegidos miembros de la Junta Directiva.
+1. Los menores de 14 años pueden adquirir la condición de asociados y ejercer los derechos derivados de esta condición por medio de sus representantes legales.  
+
+En lo que respecta a las personas jurídicas:
+1. La solicitud de ingreso tiene que ser acordada por el órgano competente
+2. Las normas por las cuales se regula a la persona jurídica en cuestión no deben excluir la posibilidad de formar parte de una asociación
+
+Para integrarse en una asociación ser requiere presentar una solicitud por escrito a la Junta Directiva, la cual tomará una decisión sobre la petición en la primera reunión que tenga lugar y la comunicará a la asamblea general más inmediata.
 
 ### Artículo 30.- Derechos
-30.1 - Son derechos de los socios y socias de pleno derecho:
+30.1 - Son derechos de los socios y socias de pleno derecho de la asociación:
 
-1. Asistir a los actos de la asociación y participar en sus actividades.
-1. Participar en las asambleas con voz y voto.
-1. Ser candidatos/se y en su caso ser elegido miembros de la Comisión Ejecutiva.
-1. Recibir información de la Asociación.
-1. Hacer uso de los servicios de la entidad
-1. Ser escuchado o escuchada en caso de expediente disciplinario.
-
-30.2- Son derechos de los y las simpatizantes.
-1. Recibir información de la Asociación
-1. Hacer uso de los servicios de la entidad
-
+1. Asistir con voz y voto a las reuniones de la Asamblea General.
+1. Elegir o ser elegidos para los puestos de representación o para ejercer cargos directivos.
+1. Ejercer la representación que se les confiera en cada caso.
+1. Intervenir en el gobierno y las gestiones en los servicios y las actividades de la asociación de acuerdo a las normas legales y estatutarias
+1. Exponer a la Asamblea y a la Junta Directiva todo aquello que consideren que pueda contribuir a hacer más plena la vida de la asociación y más eficaz la realización de los objetivos sociales básicos.
+1. Solicitar y obtener explicaciones sobre la administración y la gestión de la Junta Directiva o de los mandatarios de la asociación.
+1. Ser escuchados previamente a la adopción de medidas disciplinarias.
 
 ### Artículo 31.- Deberes
 Son deberes de todos los miembros de RAI:
 1. El abono de las cuotas en el plazo acordado.
 1. Cumplir los acuerdos adoptados por los órganos competentes de la asociación.
-1. Abstenerse absolutamente de hacer aisladamente cualquier gestión en representación de la asociación sin el conocimiento y consentimiento explícitos de la Comisión Ejecutiva, a la cual corresponde esta responsabilidad.
+1. Abstenerse absolutamente de hacer aisladamente cualquier gestión en representación de la asociación sin el conocimiento y consentimiento explícitos de la Junta Directiva, a la cual corresponde esta responsabilidad.
 
 ### Artículo 32.- Baja
 Se perderá la calidad de miembro:
 
 1. Cuando voluntariamente se desee, y así se manifieste por escrito.
-1. Cuando se contradigan los principios contenidos en los ESTATUTOSy el Reglamento de Régimen Interno por decision de la Asamblea General.
+1. No satisfaga las cuotas fijadas
+1. Incumpla las obligaciones estatutàrias
+1. Cuando se contradigan los principios contenidos en los ESTATUTOS y el Reglamento de Régimen Interno por decisión de la Asamblea General.
 
 ## CAPÍTULO V - RECURSOS ECONÓMICOS Y PATRIMONIO
 
@@ -370,7 +369,7 @@ La disolución de RAI sólo se podrá acordar por decisión de la Asamblea Gener
 En la orden del día figurará sólo esta cuestión. 
 
 ### Artículo 38.- Liquidación
-Disuelta la Asociación, la Comisión Ejecutiva, constituida en Comisión Liquidadora, procederá a liquidar el patrimonio social (los bienes y el efectivo restante), previa aprobación de la Asamblea General. Este patrimonio será entregado, en todo caso, a entidades de la misma naturaleza que la nuestra, es decir, sin ánimo de lucro.
+Disuelta la Asociación, la Junta Directiva, constituida en Comisión Liquidadora, procederá a liquidar el patrimonio social (los bienes y el efectivo restante), previa aprobación de la Asamblea General. Este patrimonio será entregado, en todo caso, a entidades de la misma naturaleza que la nuestra, es decir, sin ánimo de lucro.
 
 Diligencia para hacer constar que estos estatutos fueron aprobados por la Asamblea General Extraordinaria con fecha 1 de abril del 2006.
 
@@ -379,8 +378,5 @@ Barcelona, 01/04/2006
 
 
 
-Isabel María Guzmán Sandoval  
+Laia Gómez-Franco Estrella  
 Presidenta 
-
-Nadège Lagneau  
-Secretaría
